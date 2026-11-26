@@ -1,4 +1,4 @@
-# Minha análise da capa do álbum "Filho de Deus"
+# Capa do álbum "Filho de Deus"
 
 ### Informações presentes na minha capa
 
